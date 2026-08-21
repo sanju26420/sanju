@@ -1,0 +1,1 @@
+i am a fresher and i dont have resume create me an  detailed ATS friendly resume before that as me my details
